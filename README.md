@@ -218,4 +218,4 @@ PLAYERUNKNOWN'S BATTLEGROUNDS is offered as a full free version for Windows, pro
 Don't miss out on the action! Download PLAYERUNKNOWN'S BATTLEGROUNDS today and join the battle for survival!
 
 ---
-**Last updated:** 2026-10-04 20:34:36 UTC
+**Last updated:** 2026-10-04 23:40:24 UTC
